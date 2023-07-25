@@ -1,1 +1,3 @@
 # hello
+Jobs in STEM fields are expected to grow twice as fast as those in non-STEM fields by 2029, and millions of those jobs are expected to go unfilled in the near future, according to the U.S. Bureau of Labor Statistics. To help spark students’ interest in those fields, educators provide hands-on learning experiences and bring […]
+London Gatwick Airport has launched an expanded apprenticeship programme for 2023, with applications for six vacancies across four different engineering and IT roles. Image courtesy Gatwick Launched on Friday 10th February to celebrate National Apprenticeship Week and now in its 46th year, Gatwick’s apprenticeship programme has seen more than 300 people graduate since 1977. Applications […]
